@@ -1,6 +1,6 @@
 KK福利导航最新地址发布   建议截图——保存—— 预防丢失
 
-永远地址发布：https://kdh.icu/
+永远地址发布：https://kkdaohang.cc/
 
 发送任意邮件到  kkdhang@gmail.com ，  自动回复最新地址
 
